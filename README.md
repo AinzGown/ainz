@@ -1,0 +1,2 @@
+# ainz
+Nazarick
